@@ -2,6 +2,7 @@
 <img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/0161fb7d-72c2-4cf4-bfc5-3bd2e871dadc" />
 𝗺𝗲𝗼𝘄 :3
 𝗲𝘃𝗲𝗿𝘆 𝗱𝗮𝘆 𝗶'𝗺 𝗮𝗹𝘄𝗮𝘆𝘀 𝘁𝗵𝗲𝗿𝗲
+𝗺𝗮𝘆𝗯𝗲 𝘀𝗼𝗺𝗲𝘁𝗶𝗺𝗲𝘀 𝗼𝗳𝗳𝘁𝗮𝗯 𝗼𝗿 𝗮𝗳𝗸, 𝗶𝗳 𝗹𝗼𝗼𝗸𝗶𝗻𝗴 𝗳𝗼𝗿 𝗰+𝗵 𝗰𝗼𝗺𝗲 𝘁𝗼 𝗺𝗲, 𝗶𝗳 𝘄𝗮𝗻𝗻𝗮 𝗶𝗻𝘁 𝗱𝗼𝗻'𝘁 𝗳𝗼𝗿𝗴𝗲𝘁 𝘄𝟮𝗶!
 
   (eh wait guys, still under construction 🚧)
 <!--
