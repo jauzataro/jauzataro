@@ -2,6 +2,8 @@
 <img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/0161fb7d-72c2-4cf4-bfc5-3bd2e871dadc" />
 𝗺𝗲𝗼𝘄 :3
 𝗲𝘃𝗲𝗿𝘆 𝗱𝗮𝘆 𝗶'𝗺 𝗮𝗹𝘄𝗮𝘆𝘀 𝘁𝗵𝗲𝗿𝗲
+
+  (eh wait guys, still under construction 🚧)
 <!--
 **jauzataro/jauzataro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
