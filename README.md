@@ -11,10 +11,14 @@
   <p align="center">
 i'm feel free to anyone and i love making friends, so please int!!
     
-ʚɞ . about me 👀
+ʚɞ . about me 🦭
   - hi! you can call me Nina, i use indo&eng (my grammar's are kinda baddd loll, so i usually use indo)
-  - infp, virgo, born on Sep 13 🎂, likes various kinds of sweet foods (nom), yk whipped cream chocolate frappe? YEA I LOVE IT NUMNUMNUM
-
+  - infp, virgo, born on Sep 13 🎂, likes various kinds of sweet foods (nom), yk whipped cream chocolate frappe? YEA I LOVE IT NUMNUMNUM, 
+ʚɞ . facts about me 👀
+  - i can see people's personalities just by chatting
+  - i express my anger and sadness through crying
+  - my key to victory is controlling my own ego
+  - 
 <img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/0161fb7d-72c2-4cf4-bfc5-3bd2e871dadc" />
 
   (eh wait guys, still under construction 🚧)
