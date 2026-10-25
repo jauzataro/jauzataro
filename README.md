@@ -5,7 +5,7 @@
 <p align="center">
     every day i'm always there, except school or busy day (i hate gotoskol) > student girl „ maybe sometimes offtab or afk, just w2i ! ദ്ദി˙∇˙)ว
 <p align="center">
-    c+h and interact is always okayy 4 me, just don't being freaky or corny if u don't want me to hide and report u <p align="center">
+   (⁠o⁠´⁠･ω･⁠)⁠っ c+h and interact is always okayy 4 me, just don't being freaky or corny if u don't want me to hide and report u <p align="center">
         ( - o -') 
     
   <p align="center">
