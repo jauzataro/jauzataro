@@ -1,5 +1,5 @@
 <p align="center">
-<img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/a814fbe9-0f50-4619-8941-043046dab5ef" />
+<img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/0161fb7d-72c2-4cf4-bfc5-3bd2e871dadc" />
 <!--
 **jauzataro/jauzataro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
