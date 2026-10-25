@@ -1,6 +1,6 @@
 <p align="center">
 <img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/0161fb7d-72c2-4cf4-bfc5-3bd2e871dadc" />
-  **meow meow ssssshhhhhh**
+
 <!--
 **jauzataro/jauzataro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
