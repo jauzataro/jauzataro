@@ -17,7 +17,7 @@ i'm feel free to anyone and i love making friends, so please int!!
   - fandom: sasaki to miyano, detective conan, droomp, horror or mystery novel/article/footage/movie/comic, 
     
 ʚɞ . about me #2
-  - i can see people's personalities just by chatting
+  - i can see people's personalities
   - i like reading, solving puzzles, and I'm a perfectionist
 <img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/0161fb7d-72c2-4cf4-bfc5-3bd2e871dadc" />
 
