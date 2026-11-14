@@ -14,7 +14,7 @@ i'm feel free to anyone and i love making friends, so please int!!
 ʚɞ . about me 🦭
   - hi! you can call me Nina, i use indo&eng (my grammar's are kinda baddd loll, so i usually use indo)
   - infp, virgo, born on Sep 13 🎂, likes various kinds of sweet foods (nom), yk whipped cream chocolate frappe? YEA I LOVE IT NUMNUMNUM,
-  - fandom: sasaki to miyano, detective conan, droomp, horror or mystery novel/article/footage/movie/comic, 
+  - fandom: sasaki to miyano, detective conan, droomp, horror or mystery novel/article/footage/movie/comic, roblox: 3008, monochrome, violence district, survive the killer
     
 ʚɞ . about me #2
   - i can see people's personalities
