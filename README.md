@@ -1,7 +1,7 @@
 <p align="center">
   <img width="640" height="360" alt="Image" src="https://github.com/user-attachments/assets/9ded16bd-b2fa-4bc5-8365-e915118bbb7b" />
 <p align="center">
-HII
+HI!
 <p align="center">
     tiap hari aku ada, except school or busy day (i hate gotoskol) > student girl „  kadang bakalan offtab kalo ga afk, nah w2i aja ya! ദ്ദി˙∇˙)ว
 <p align="center">
@@ -12,13 +12,13 @@ HII
 i'm feel free to anyone and i love making friends, so please int!! BMF BMF BMF 
     
 ʚɞ . about me 🦭
-  - hi! you can call me Nina, i use indo&eng (my grammar's are kinda baddd loll, so i usually use indo)
-  - infp, virgo, born on Sep 13 🎂, likes various kinds of sweet foods (nom), yk whipped cream chocolate frappe? YEA I LOVE IT NUMNUMNUM,
+  - hi! you can call me Nina, me perfectionist infp, i use indo&eng
   - fandom: sasaki to miyano, detective conan, droomp, horror or mystery novel/article/footage/movie/comic, roblox: 3008, monochrome, violence district, survive the killer
     
 ʚɞ . about me #2
-  - i can see people's personalities
-  - i like reading, solving puzzles, and I'm a perfectionist
+  - i can read ur personality
+  - i'd like to reading, solving puzzles, writing
+
 <img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/0161fb7d-72c2-4cf4-bfc5-3bd2e871dadc" />
 
   (wait cutie, still under construction 🚧)
