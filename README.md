@@ -14,17 +14,14 @@ i'm feel free to anyone and i love making friends, so please int!!
 ʚɞ . about me 🦭
   - hi! you can call me Nina, i use indo&eng (my grammar's are kinda baddd loll, so i usually use indo)
   - infp, virgo, born on Sep 13 🎂, likes various kinds of sweet foods (nom), yk whipped cream chocolate frappe? YEA I LOVE IT NUMNUMNUM,
-  - what i like: sasaki to miyano, detective conan, droomp, horror or mystery novel/article/footage/movie/comic, 
+  - fandom: sasaki to miyano, detective conan, droomp, horror or mystery novel/article/footage/movie/comic, 
     
-ʚɞ . facts about me 👀
+ʚɞ . about me #2
   - i can see people's personalities just by chatting
-  - i express my anger and sadness through crying
-  - my key to victory is controlling my own ego
   - i like reading, solving puzzles, and I'm a perfectionist
-  - 
 <img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/0161fb7d-72c2-4cf4-bfc5-3bd2e871dadc" />
 
-  (eh wait guys, still under construction 🚧)
+  (wait cutie, still under construction 🚧)
 <!--
 **jauzataro/jauzataro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
